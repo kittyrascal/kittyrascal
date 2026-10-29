@@ -1,11 +1,5 @@
-
-  <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=kittyrascal&color=cac5b2&style=flat-square&label=relationships_destroyed" alt="Profile Views" />
-</p>
-
 <p align="center">
-𝗙𝗔𝗖𝗧𝗞𝗜𝗡𝗦 𝗦𝗧𝗥𝗜𝗖𝗧𝗟𝗬 𝗗𝗡𝗜
-i block freely 
+  <img src="https://img.shields.io/badge/𝗙𝗔𝗖𝗧𝗞𝗜𝗡𝗦-𝗦𝗧𝗥𝗜𝗖𝗧𝗟𝗬%20𝗗𝗡𝗜-8a2713?style=flat-square" alt="FACTKINS STRICTLY DNI" />
 </p>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=748CA2&width=435&lines=It's+such+a+shame%2C;that+you+became+such+an+issue+.+.+.+;Oh%2C+dear+William+I'll+miss+you+.+.+.)](https://git.io/typing-svg)
