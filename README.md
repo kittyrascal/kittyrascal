@@ -1,3 +1,8 @@
+
+  <p align="center">
+  <img src="https://komarev.com/ghpvc/?username=kittyrascal&color=cac5b2&style=flat-square&label=relationships_destroyed" alt="Profile Views" />
+</p>
+
 <p align="center">
 𝗙𝗔𝗖𝗧𝗞𝗜𝗡𝗦 𝗦𝗧𝗥𝗜𝗖𝗧𝗟𝗬 𝗗𝗡𝗜
 i block freely 
