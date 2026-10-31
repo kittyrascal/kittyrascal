@@ -1,6 +1,3 @@
-<p align="center">
-  ONLY REQ:
-</p>
 
 <p align="center">
   <img src="https://img.shields.io/badge/𝗙𝗔𝗖𝗧𝗞𝗜𝗡𝗦-𝗦𝗧𝗥𝗜𝗖𝗧𝗟𝗬%20𝗗𝗡𝗜-8a2713?style=flat-square" alt="FACTKINS STRICTLY DNI" />
