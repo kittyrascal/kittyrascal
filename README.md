@@ -2,6 +2,8 @@
   C+H (cuddles and hugs) is allowed unless I have stated otherwise (such as "DNI" or another variation of it)
 </h3>
 
+I'll make a spam flw account once i learn how to do it soz guys i dont fb often ToT
+
 <h3 align="center">
   <img src="https://img.shields.io/badge/𝗙𝗔𝗖𝗧𝗞𝗜𝗡𝗦-𝗦𝗧𝗥𝗜𝗖𝗧𝗟𝗬%20DNI-8a2713?style=flat-square" alt="FACTKINS STRICTLY DNI" width="400" />
 </h3>
