@@ -5,7 +5,7 @@
 I'll make a spam flw account once i learn how to do it soz guys i dont fb often ToT
 
 <h3 align="center">
-  <img src="https://img.shields.io/badge/I cannot form-a solid opinion anymore%20-8a2713?style=flat-square" alt="FACTKINS STRICTLY DNI" width="400" />
+  <img src="https://img.shields.io/badge/NOEL GALLAGHER-BIBLICAL%20-8a2713?style=flat-square" alt="FACTKINS STRICTLY DNI" width="400" />
 </h3>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=91634d&width=435&lines=It's+such+a+shame%2C;that+you+became+such+an+issue+.+.+.+;Oh%2C+dear+William+I'll+miss+you+.+.+.)](https://git.io/typing-svg)
