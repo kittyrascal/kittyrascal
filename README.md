@@ -15,3 +15,5 @@ I'll make a spam flw account once i learn how to do it soz guys i only follow fr
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=kittyrascal&color=91634d&style=flat-square&label=lives_ruined" alt="Profile Views" width="150" />
 </p>
+
+wip...
