@@ -1,9 +1,4 @@
-<h3 align="center">
-  C+H (cuddles and hugs) is allowed unless I have stated otherwise (such as "DNI" or another variation of it)
-</h3>
-
-I'll make a spam flw account once i learn how to do it soz guys i only follow friends/mutuals back on this account ToT... and maybe occasionally some pretty githubs or amazing artists
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=900&size=14&pause=1000&color=A9432A&multiline=true&width=535&lines=%22I+know+for+a+fact+that+I'm+problematic.+;I+shouldn't+be+looked+to+for+any+kind+of+guidance.+-+Mitski)](https://git.io/typing-svg)
 <h3 align="center">
   <img src="https://img.shields.io/badge/NOEL GALLAGHER-BIBLICAL%20-8a2713?style=flat-square" alt="FACTKINS STRICTLY DNI" width="400" />
 </h3>
