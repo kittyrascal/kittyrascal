@@ -6,7 +6,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=720&pause=100&color=F70000&random=true&width=1000&lines=YOU+ARE+GROSS;YOU+ARE+PERVERSE;YOU+ARE+HORRIBLE;YOU+ARE+REVOLTING;YOU+ARE+TERRIFYING;YOU+ARE+GOD;YOU+ARE+BEAUTIFUL;YOU+ARE+GOD;YOU+ARE+THE+SAVIOR;YOU+ARE+JUSTICE;YOU+ARE+CRUEL;YOU+ARE+A+SAINT;YOU+ARE+EVIL;YOU+ARE+HEAVENLY;YOU+ARE+HEAVEN;YOU+ARE+HELL;YOU+ARE+A+MARTYR;YOU+DISGUST+ME;YOU+ARE+A+TOOL;YOU+ARE+UNLOVABLE;YOU+ARE+THE+CHOSEN+ONE;I+AM+SO+DISGUSTED;I+AM+SO+DISGUSTED;I+AM+SO+DISGUSTED;I+AM+SO+DISGUSTED;I+AM+SO+DISGUSTED;I+AM+SO+DISGUSTED;I+AM+SO+DISGUSTED;I+AM+SO+DISGUSTED;I+AM+SO+DISGUSTED;I+AM+SO+DISGUSTED;I+AM+SO+DISGUSTED)](https://git.io/typing-svg)
 
 <p align="center">
-  ------------------------------------------------------------------------------------------------------------------------------------------------------------
+  ------------------------------------------------------------------------------------------------------------------------------------------------------
 </p>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=900&size=14&pause=1000&color=A9432A&repeat=false&width=1000&lines=%22I+know+for+a+fact+that+I'm+problematic.+I+shouldn't+be+looked+to+for+any+kind+of+guidance."+-+Mitski)](https://git.io/typing-svg)
