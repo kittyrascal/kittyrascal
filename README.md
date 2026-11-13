@@ -92,7 +92,7 @@ summarized...
 <br>3 AM - 7 AM
 <br>ᴏɴ ᴡᴇᴇᴋᴇɴᴅꜱ... 
 <br>3 AM - 8 AM
-<br>TIMEZONE : GMT +2
+<br>TIMEZONE : UTC +2
 <br><br>
   ꜰɪɴᴅ ᴍᴇ ᴀᴛ :
   <br>NEAR BAKERY & TOY STASH
