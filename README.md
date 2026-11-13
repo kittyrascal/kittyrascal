@@ -21,8 +21,10 @@ side note : I suddenly feel so smart and cool and happy that i finally learned t
 <img width="600" height="330" alt="shoes-divider" src="https://github.com/user-attachments/assets/4814c528-1ba7-42ae-9b2a-e9bd99601a61" />
 </div>
 
-<br><br>
+<br>
 <div align="center">
+[新ʙᴏᴏᴋ](https://kittyrascal.atabook.org/) ┃ [ꜱᴛʀᴀᴡᴘ](https://kittyrascal.straw.page/) ┃ [ᴘʀɴꜱ.ᴘᴀɢᴇ](https://en.pronouns.page/@kittyrascal)
+  <br><br>
   ɪ'ᴍ ᴄᴇʀᴛᴀɪɴʟʏ ᴏꜰꜰʟɪɴᴇ ᴀᴛ ᴛʜᴇꜱᴇ ʜᴏᴜʀꜱ : 
 <br>ᴏɴ ᴡᴇᴇᴋᴅᴀʏꜱ...
 <br>3 AM - 7 AM
