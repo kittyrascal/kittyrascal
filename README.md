@@ -1,3 +1,6 @@
+# W(work) I(in) P(progress) !
+
+
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=kittyrascal&color=9E233C&style=flat-square&label=lives_ruined" alt="Profile Views" width="150" />
@@ -15,10 +18,4 @@
 </div>
 
 <p align="center">
-
-
-
-
-
-HUGE WIP OMG PLS HELP ME
   
