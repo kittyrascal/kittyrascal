@@ -1,5 +1,4 @@
-# W(work) I(in) P(progress) !
-side note : I suddenly feel so smart and cool and happy that i finally learned to code this shit...
+side note : wip , I suddenly feel so smart and cool and happy that i finally learned to code this shit...
 
 <p align="center">
   <img width="1000" height="30" alt="piano-graphics" src="https://github.com/user-attachments/assets/a1a6c7f7-9204-4540-b5ea-59bf7d381e92" />
