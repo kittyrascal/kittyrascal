@@ -20,13 +20,18 @@
 <img width="600" height="330" alt="shoes-divider" src="https://github.com/user-attachments/assets/4814c528-1ba7-42ae-9b2a-e9bd99601a61" />
 </div>
 
+<br><br>
+
 <p align="center">
   <img width="1000" height="30" alt="piano-graphics" src="https://github.com/user-attachments/assets/a1a6c7f7-9204-4540-b5ea-59bf7d381e92" />
 </div>
 
 
+
+
 <div align="center">
 </div>
 
+<br><br>
 
 
