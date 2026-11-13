@@ -22,8 +22,7 @@ side note : wip , I suddenly feel so smart and cool and happy that i finally lea
   
 summarized...
 <br>**ALL (POSITIVE/NEUTRAL) INTERACTIONS ARE APPRECIATED !!**
-<br>I am sensitive and selectively verbal.
-<br>HARRASSMENT = **INSTANT BLOCK** , I BLOCK FREELY
+<br>HARRASSMENT = **INSTANT BLOCK**
 <br>PLEASE use tone tags when appropriately (e.g. /j, /srs, /lh, /p)
 <br>I am **anti**-harassment and **pro**-fic. Please educate yourself on the **original** meaning of these terms before jumping into conclusions.
 **I do NOT condone, support nor validate anything harmful in real life.**
