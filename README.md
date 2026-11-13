@@ -22,14 +22,22 @@ side note : I suddenly feel so smart and cool and happy that i finally learned t
 </div>
 
 <br><br>
-<p align="center">
-  <img width="1000" height="30" alt="piano-graphics" src="https://github.com/user-attachments/assets/a1a6c7f7-9204-4540-b5ea-59bf7d381e92" />
+<div align="center">
+  ɪ'ᴍ ᴄᴇʀᴛᴀɪɴʟʏ ᴏꜰꜰʟɪɴᴇ ᴀᴛ ᴛʜᴇꜱᴇ ʜᴏᴜʀꜱ : 
+<br>ᴏɴ ᴡᴇᴇᴋᴅᴀʏꜱ...
+<br>3 AM - 7 AM
+<br>ᴏɴ ᴡᴇᴇᴋᴇɴᴅꜱ... 
+<br>3 AM - 8 AM
+<br><br>
+  ꜰɪɴᴅ ᴍᴇ ᴀᴛ :
+  <br>NEAR BAKERY & TOY STASH
+  <br>ISLAND/DOCKS
+  <br>SPAWN
 </div>
 
-
-
-
-<div align="center">
+<br><br>
+<p align="center">
+  <img width="1000" height="30" alt="piano-graphics" src="https://github.com/user-attachments/assets/a1a6c7f7-9204-4540-b5ea-59bf7d381e92" />
 </div>
 
 <br><br>
