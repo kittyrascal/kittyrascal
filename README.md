@@ -4,7 +4,7 @@
 
 
 <p align="center">
-  ------------------------------------------------------------------------------------------------------------------------------------------------------
+  ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 </p>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=15&duration=1&pause=1&color=A9432A&center=true&vCenter=true&repeat=false&width=1000&lines=%22I+know+for+a+fact+that+I'm+problematic.+I+shouldn't+be+looked+to+for+any+kind+of+guidance.%22+-+Mitski)](https://git.io/typing-svg)
