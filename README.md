@@ -79,6 +79,11 @@ summarized...
 
 <br>
 <div align="center">
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31k7znkqurt2jnuwnsqunfjpxjpa&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=true&bar_color=a73939&bar_color_cover=false">
+  </a>
+</p>
   
   ╰➤
   [新ʙᴏᴏᴋ](https://kittyrascal.atabook.org/) 
@@ -87,6 +92,7 @@ summarized...
   ┊
   [ᴘʀɴꜱ.ᴘᴀɢᴇ](https://en.pronouns.page/@kittyrascal)
 ᯓ★
+
   <br><br>
   ɪ'ᴍ ᴄᴇʀᴛᴀɪɴʟʏ ᴏꜰꜰʟɪɴᴇ ᴀᴛ ᴛʜᴇꜱᴇ ʜᴏᴜʀꜱ : 
 <br>ᴏɴ ᴡᴇᴇᴋᴅᴀʏꜱ...
