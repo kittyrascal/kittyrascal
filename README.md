@@ -64,6 +64,7 @@ summarized...
 <br>Games ; Class of '09 , Minecraft , Yandere Simulator
 <br>Music ;  Mitski , **Oasis** , **The Beatles** , Lana Del Rey , Big Thief , **Alex G** , Radiohead , The Smiths , TV Girl and more
 <br>Graphic novels ; Detective Comics
+<br>Movies ; Water Lilies
 <br><br>
   **INTERESTS**
 <br>**drawing** , painting , anatomy (artistic & biological) , songwriting , poetry , **writing** , character design , **collecting physical media** (e.g. **CDs**, figurines, comics, books, etc.) , Para Para /not good at it :.( , language learning
