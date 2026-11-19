@@ -22,7 +22,7 @@ side note : wip
 summarized...
 <br>**ALL (POSITIVE/NEUTRAL) INTERACTIONS ARE APPRECIATED !!**
 <br>HARRASSMENT = **INSTANT BLOCK**
-<br>PLEASE use tone tags when appropriately (e.g. /j, /srs, /lh, /p)
+<br>PLEASE use tone tags appropriately (e.g. /j, /srs, /lh, /p)
 <br>I am **anti**-harassment and **pro**-fic. Please educate yourself on the **original** meaning of these terms before jumping into conclusions.
 <br>**I do NOT condone, support nor validate anything harmful in real life.**
 <br>I have been suspected of multiple disorders but I never got a chance to get diagnoses. If I act hostile/oddly I might be going through something, I apologize in advance in case I upset you.
